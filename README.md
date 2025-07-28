@@ -1,1 +1,0 @@
-# Deepak-static-website-
